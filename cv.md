@@ -1,3 +1,3 @@
-# Artem Grokholskyi 3
+# Artem Grokholskyi
 
 ## Contacts
